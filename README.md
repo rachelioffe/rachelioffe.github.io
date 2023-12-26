@@ -22,14 +22,7 @@ I think you'll be receiving this while I'm in the Netherlands.
 
 I hope by now we have had loads of fun together and will continue to for the rest of the trip.
 
-Here is a heart for you:
-_______¶¶¶_¶¶¶
-______¶¶__¶__¶¶
-______¶¶_____¶¶
-_______¶¶___¶¶
-________¶¶¶¶¶
-_________¶¶¶
-__________¶
+Here is a heart for you: ♡
 
 Also this: https://youtu.be/kZwhNFOn4ik?si=eSoIJL8LmJY5S9ZQ
 
